@@ -1,9 +1,19 @@
-# 👰🏻❤🤵🏻
-# 은혜랑 수한이 결혼합니다 ;)
+# 👰🏻❤🤵🏻 은혜랑 수한이 결혼합니다 ;)
 
 ## 일시 : 2021.04.17(토) 12시 
-### Time : Sat, Apr 17, 2021, 12PM
+## 장소 : 충북 청주시 흥덕구 남석로 579 아모르아트웨딩컨벤션 
+### [축하해주러 오시는 길](https://map.kakao.com/?itemId=66951176){: target="_blank"}
 
-## 장소 : 충북 청주시 흥덕구 남석로 579 아모르아트웨딩컨벤션
-### Place : 579, Namseok-ro, Heungdeok-gu, Cheongju-si, Chungcheongbuk-do, Republic of Korea Amourart Wedding Convention
-### [오시는길](https://map.kakao.com/?itemId=66951176){: target="_blank"}
+30년 가까이 서로의 존재도 모른체 살아왔던 저희가
+
+2019년 2월 좋은 사람의 소개로 알게되어 
+
+2년 간의 연애의 종지부를 찍게 되었습니다!
+
+따뜻한 봄날, 따뜻한 마음으로 귀한 걸음 하시어
+
+축복해 주시면 큰 기쁨이겠습니다.
+
+
+
+
